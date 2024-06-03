@@ -9,7 +9,8 @@ Getting into the domain to gain experience and new skills.
 
 ## Experiences
 
-Tutoring for the technique d'intégration multimédia (Montmorency College) (Winter 2023 - Present)
+- Tutoring for the technique d'intégration multimédia (Montmorency College) (Winter 2023 - Spring 2024)
+- Internship in video game development at Yéti Concept (April 2024 - May 2024)
 
 ## Nominations
 
