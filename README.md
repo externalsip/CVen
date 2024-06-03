@@ -17,6 +17,10 @@ Getting into the domain to gain experience and new skills.
 - Audio-Visual essay contest of the Multimedia Integration program (2023)
 - Audio-Visual essay contest of the Multimedia Integration program (2022)
 
+## Awards
+
+- Audio-Visual essay contest of the Multimedia Integration program (2024)
+
 ## Formation
 
 - Multimedia Integration program (Montmorency College) 2021-2024
