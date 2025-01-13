@@ -19,7 +19,7 @@ Getting into the domain to gain experience and new skills.
 
 ## Awards
 
-- Audio-Visual essay contest of the Multimedia Integration program (2024)
+- Audio-Visual essay contest of the Multimedia Integration program at Montmorency College (2024)
 
 ## Formation
 
