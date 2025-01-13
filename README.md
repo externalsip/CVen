@@ -23,7 +23,8 @@ Getting into the domain to gain experience and new skills.
 
 ## Formation
 
-- Multimedia Integration program (Montmorency College) 2021-2024
+- Multimedia Integration DEC (Montmorency College) 2021-2024
+- Gameplay developper BAC (UQAT) 2024-2027
 
 ## Spoken Languages
 
